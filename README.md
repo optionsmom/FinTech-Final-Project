@@ -5,6 +5,8 @@
 - [Brian](https://umn.bootcampcontent.com/MrIrrelevant)
 - [Kally](https://umn.bootcampcontent.com/klb0215)
 - [Mike](https://umn.bootcampcontent.com/mvigoren34)
+
+- [Queeny](https://umn.bootcampcontent.com/Queeny)
 - [Sergio](https://umn.bootcampcontent.com/SVivanco)
 
 ## Introduction
